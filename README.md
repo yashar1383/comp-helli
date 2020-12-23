@@ -1,2 +1,2 @@
-# comp-helli
-in this repository we wanna share the questions and answers of helli1 comps homework  so welcome 
+#helli1-GitHub-office
+hi as you've seen yeah here is helli1 office share us to your friends
